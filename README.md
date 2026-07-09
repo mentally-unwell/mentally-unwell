@@ -7,4 +7,4 @@
 
 <sub> i doodle in people's strawpages and/or sign their ata when im bored, specifically to those with similar interests I haeve >_>>>.... im mentally unwell and socialyl inept.. oh also, cuddle/sit freely with me yay!!!!!
 
-<sub> my messy/rougj sketches look betteer than my finished work help
+<sub> i usually use my BTD skins and (Rot)TMNT skins (my fave is mikey and donnie!!)
