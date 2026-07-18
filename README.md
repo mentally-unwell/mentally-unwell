@@ -6,9 +6,10 @@
   <summary> <p align="center"> $\color{#6D2900}{\textsf{Click for Phil/Sano's intro!}}$ </summary>
 
 ### Before You Interact/Friend
-<sub>I'm a 15 y/o mentally unwell grill, I like drawing uvh.. C+H is ALWAYS encouraged and whisp to interact bcus im almost alwaus afk. I am friendly, unresponsive (kinda), and a bit dry/awkward at first—if i wasnt like this (ex. vry energetic, hostile idk), then idk look at my github user.. no im not gonna bother using IWC/DNI in my name lmao. ok as we get closer, ill approach u often and try to start conversations or smth idfk. my jokes are cringy and consists of insults, death threats, etcetc., if ure uncomfy/want me to bck off pls lemme know! i dont have a DNI list, i block freelyy lalalala. i mihht have to add that im stupid and i sometimes cant tell whether my jks r offensive or not, and idk how to comfort... all i can do is listen..
+<sub>main intro: hello my name is Phil/Sano and I am a 15-year-old, mentally unwell teen. My sociall skills deteriorated over time and I have almost no idea how to get close to some of my friends ot befriend people; I can communicate just fine (kinda) but there are times that I have a hard time thinking of a response, so please be patient!
 
-<sub>(っ´ω`ｃ) ﾟ.+:｡∩(・ω・)∩ﾟ.+:｡
+<sub>others: I'm pretty distant and dry/awkward around people I just met... but as we  get closer, Ihave a childish personality and my humour sucks, I'd pull out references out my qss and i dokt think b4 i speak. if i ever said anything offensive, if you're annoyed/uncomfy or want me to back off, plss lemme know so I can stop!!
+
 ### Hyperfixations!! (+fave contnt creators)
 <sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
 
