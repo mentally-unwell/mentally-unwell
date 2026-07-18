@@ -1,4 +1,4 @@
-## $\color{#969fa3}{\textsf{٠🔪ིྀ⭑ Offerkng - Cults .⋆♱}}$
+## $\color{#969fa3}{\textsf{٠🔪ིྀ⭑ Offering - Cults .⋆♱}}$
 
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Screenshot_20260706_223329_ibisPaint%20X.jpg)](https://www.youtube.com/watch?v=0GVExpdmoDs)
 
