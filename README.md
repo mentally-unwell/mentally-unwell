@@ -1,6 +1,6 @@
 ## $\color{#768000}{\textsf{٠🔪ིྀ⭑ Offering - Cults .⋆♱}}$
 
-[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=0GVExpdmoDs)
+[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=QEM02nvkDAo)
 
 <details>
   <summary> <p align="center"> $\color{#6D2900}{\textsf{Click for Phil/Sano's intro!}}$ </summary>
