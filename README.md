@@ -25,6 +25,6 @@
 ___
 
 <p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
-<p align="center"><sub><a href="https://mentally-unwell.straw.page/">꒰ঌ(˶ˆᗜˆ˵)໒꒱</a></p>
-<p align="center"><sub><a href="https://serpula-lacrymans.atabook.org/">(っ´ω`ｃ)</a></p>
-<p align="center"><sub><a href="https://guns.lol/mentally_ill">socials</a></p>
+<p align="center"><sub><a href="https://mentally-unwell.straw.page/">strawpage ꒰ঌ(˶ˆᗜˆ˵)໒꒱</a></p>
+<p align="center"><sub><a href="https://serpula-lacrymans.atabook.org/">atabook (っ´ω`ｃ)</a></p>
+<p align="center"><sub><a href="https://guns.lol/mentally_ill">socials ⛧⃝𓄃</a></p>
