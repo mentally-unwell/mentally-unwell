@@ -10,7 +10,7 @@
 <sub>hello i go by the name Phil or Sano (or anything idfc), I am a 15-year-old mentally unwell teen. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
 
 #### First Impression:
-<sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile idk), then tht was prolly not me or maybe i waz going insane. no im not gonna use iwc/dni on my name 😂😂
+<sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile idk), then tht was prolly not me or maybe i waz going insane 😂😂
 
 #### When I feel Comfy:
 <sub>i am childish, dramatic asf, self centred (sometimes), repetetive (im forgetful sowry), i pull references out my ass, and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE 🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.
