@@ -15,7 +15,7 @@
 #### When I feel Comfy:
 <sub>i am childish, dramatic asf, self centred (sometimes), sometimes repetetive, i pull references out my ass, and i am corny and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE AND CORNY AND🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.
 
-### Fixation (changes from timeto time)
+### Hyperfixation
 #### Main Interests:
 <sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
 
