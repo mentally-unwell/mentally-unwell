@@ -10,7 +10,7 @@
 <sub>hello i go by the name Phil or Sano (or anything lal), I am a 15-year-old mentally unwell filipino with a INFP-T personality. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
 
 #### First Impression:
-<sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile idk), then tht was prolly not me or maybe i waz going insane 😂😂
+<sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile/idk), then tht was prolly not me or maybe i waz going insane 😂😂
 
 #### When I feel Comfy:
 <sub>i am childish, dramatic asf, self centred (sometimes), sometimes repetetive, i pull references out my ass, and i am corny and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE AND CORNY AND🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.
@@ -23,12 +23,12 @@
 <sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
 
 #### Music Artists/Bands:
-<sub>Cults, Have a Nice Life, Mother Mother, Mindless Self Indulgence (I listen to the compilation album, PINK, and Mindless-Self Indulgence (self titled album) a lot and no i doughnut support MSI, I pirated all their music lmao)
+<sub>Cults (recently), Have a Nice Life, Mother Mother, MARETU, Kikuo, Nine Inch Nails (recently)
 
 ### Fictkins:
 
 #### BTD/idk:
-<sub>Sano Kojima (i hate himso much and pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT), Ashe, Ren Hana, Lawrence
+<sub>Sano Kojima (pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT.), Ashe, Ren Hana, Lawrence
 
 <sub> ill add more soon..
 
