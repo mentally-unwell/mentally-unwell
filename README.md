@@ -7,7 +7,7 @@
 
 ### Before You Interact/Friend
 #### Main Intro:
-<sub>hello i go by the name Phil or Sano (or anything lal), I am a 15-year-old mentally unwell filipino with a INFP-T personality. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
+<sub>hello i go by the name Phil or Sano (or anything), I am a 15-year-old mentally unwell Filipino with an INFP-T personality. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
 
 #### First Impression:
 <sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile/idk), then tht was prolly not me or maybe i waz going insane 😂😂
