@@ -13,7 +13,7 @@
 <sub>usually i am awkward/dry, quiet, a bit unresponsive and distant around ppl I jst met, i kinda overthink as well... if i didnt act like this (ex. vry energetic/hostile/idk), then tht was prolly not me or maybe i waz going insane 😂😂
 
 #### When I feel Comfy:
-<sub>i am childish, dramatic asf, forgetful, self centred (sometimes), sometimes repetetive, i pull references out my ass, and i am corny and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE AND CORNY AND🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.
+<sub>i am childish, dramatic asf, forgetful, self centred (sometimes), sometimes repetetive, i pull references out my ass, and i am corny and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE AND CORNY AND🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.i also dunno how to comfort, im only good at listening sowry :c
 
 ### Hyperfixation
 #### Main Interests:
