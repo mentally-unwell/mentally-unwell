@@ -23,7 +23,7 @@
 <sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
 
 #### Music Artists/Bands:
-<sub>Cults, Have a Nice Life, Mother Mother, Mindless Self Indulgence (I listen to the compilation album, PINK, a lot and no i doughnut support MSI, I pirated almost all their music lmap)
+<sub>Cults, Have a Nice Life, Mother Mother, Mindless Self Indulgence (I listen to the compilation album, PINK, and Mindless-Self Indulgence (self titled album) a lot and no i doughnut support MSI, I pirated all their music lmao)
 
 ### Fictkins:
 
