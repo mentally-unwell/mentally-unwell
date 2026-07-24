@@ -23,7 +23,7 @@
 <sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
 
 #### Music Artists/Bands:
-<sub>Cults (recently), Have a Nice Life, Mother Mother, Nine Inch Nails (recently)
+<sub>Cults (recently), Have a Nice Life, Mother Mother, Nine Inch Nails (recently), Mindless Self Indulgence (only listening to PINK and self titled album, no i do not support them anymore)
 
 #### Fictkins:
 
