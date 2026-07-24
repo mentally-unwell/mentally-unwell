@@ -17,21 +17,17 @@
 
 ### Hyperfixation
 #### Main Interests:
-<sub> RanFren, BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
+<sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), doing research and learning new things (gimme facts,,/nf)
 
 #### Content Creator:
 <sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
 
 #### Music Artists/Bands:
-<sub>Cults (recently), Have a Nice Life, Mother Mother, MARETU, Kikuo, Nine Inch Nails (recently)
+<sub>Cults (recently), Have a Nice Life, Mother Mother, Nine Inch Nails (recently)
 
-### Fictkins:
-<sub>idrc if u yumeship(or whtvr), jst do wht u wantlala
+#### Fictkins:
 
-#### BTD/idk:
 <sub>Sano Kojima (pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT.), Ashe, Ren Hana, Lawrence
-#### RanFren:
-<sub>Randal, Satoru, Nyon, Sebastian de Tomato Smith Chicken Legs
 
 <sub> ill add more soon..
 
