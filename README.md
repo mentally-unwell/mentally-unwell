@@ -17,7 +17,7 @@
 
 ### Hyperfixation
 #### Main Interests:
-<sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
+<sub> RanFren, BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
 
 #### Content Creator:
 <sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
@@ -30,6 +30,8 @@
 
 #### BTD/idk:
 <sub>Sano Kojima (pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT.), Ashe, Ren Hana, Lawrence
+#### RanFren:
+<sub>Randal, Satoru, Nyon, Sebastian de Tomato Smith Chicken Legs
 
 <sub> ill add more soon..
 
